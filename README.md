@@ -1,1 +1,1 @@
-Hello ! Im Tamisha, an IT Specialist 
+# Hello, I'm Tamisha, an IT Specialist!
