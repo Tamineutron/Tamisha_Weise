@@ -1,1 +1,1 @@
-# Tamisha_Weise
+Hello ! Im Tamisha, an IT Specialist 
